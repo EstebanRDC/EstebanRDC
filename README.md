@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EstebanRDC
-- 👀 I’m a math teacher,
+- 👀 I’m a fallow math teacher,
 - 🌱 I’m currently learning everything I can so 
 - 💞️ I can collaborate on gaming design
 - 📫 How to reach me : don't. Or try harder :)
